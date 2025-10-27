@@ -41,3 +41,8 @@ Ich empfehle auf eine Rolle zwei vierecke zu zeichnen eines kleiner als das ande
 <img width="852" height="659" alt="image" src="https://github.com/user-attachments/assets/5a95c001-e780-442a-8943-e0bfb61d22c5" />
 
 # aber keine erzählen was ist wenns wie geplant nur wirkt wenn man alleine ist, sonst wird man noch geschändigt aber Ich hätte da generell noch sorge unter Leuten, egal welchen.
+
+# Wehe alle anderen sind nicht auf Geschäftsreise wenn sowas ne Tocher kocht für sich sonst ist Traumata
+
+<img width="890" height="649" alt="image" src="https://github.com/user-attachments/assets/1d1955bd-c13e-4106-bc8e-99eaca9b3c17" />
+
