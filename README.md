@@ -33,3 +33,9 @@ Ich empfehle auf eine Rolle zwei vierecke zu zeichnen eines kleiner als das ande
 
 
 # Wenn wer meint Ich solle studieren gehen, geben sie sich mal die Nebenwirkungen von Risperidon wenn die Zirbeldrüse gesund ist und beim einschlafen die dmt produktion anschmeißen will die bei manchen eintreffen bezug eigentlich generell dass die zirbeldrüse dmt produziert im gesunden zustand und die lösung vllt zeolith wäre wenn das ding sich in gefahr sieht weil bewusstsein des gehirns.
+
+
+
+# Special:
+
+<img width="852" height="659" alt="image" src="https://github.com/user-attachments/assets/5a95c001-e780-442a-8943-e0bfb61d22c5" />
