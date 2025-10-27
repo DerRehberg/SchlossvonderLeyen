@@ -40,4 +40,4 @@ Ich empfehle auf eine Rolle zwei vierecke zu zeichnen eines kleiner als das ande
 
 <img width="852" height="659" alt="image" src="https://github.com/user-attachments/assets/5a95c001-e780-442a-8943-e0bfb61d22c5" />
 
-# aber keine erzählen was ist wenns wie geplant nur wirkt wenn man alleine ist, sonst wird man noch geschändigt
+# aber keine erzählen was ist wenns wie geplant nur wirkt wenn man alleine ist, sonst wird man noch geschändigt aber Ich hätte da generell noch sorge unter Leuten, egal welchen.
