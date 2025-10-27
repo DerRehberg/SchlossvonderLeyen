@@ -30,3 +30,6 @@ Ich empfehle auf eine Rolle zwei vierecke zu zeichnen eines kleiner als das ande
 
 <img width="768" height="1152" alt="image" src="https://github.com/user-attachments/assets/346d45b5-8333-4fed-899e-87c0b787c54e" />
 
+
+
+# Wenn wer meint Ich solle studieren gehen, geben sie sich mal die Nebenwirkungen von Risperidon wenn die Zirbeldrüse gesund ist und beim einschlafen die dmt produktion anschmeißen will die bei manchen eintreffen.
